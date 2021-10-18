@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sterp1
+- 👋 Hi, I’m soup
 - 👀 I’m interested in soup
 - 🌱 I’m currently learning soup
 - 💞️ I’m looking to collaborate on soup
